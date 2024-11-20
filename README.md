@@ -24,7 +24,7 @@
 - :book: Reading Books - (These days mostly tech :slightly_smiling_face:)
 - I​n​ :heart: with Astronomy and everything about :milky_way: space eversince :baby: !
 
-- 📫 How to reach me *sudhanshut2017.st@gmail.com*
+
 
 
 <h3 align="left">I work with:</h3>
